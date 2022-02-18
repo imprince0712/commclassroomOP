@@ -1,5 +1,5 @@
 # Community Classroom is OP
-
+-Prince is added to the classroom
 - Kunal Kushwaha says that this community is amazing.
 - Kunal made this change
 - I love MLH
